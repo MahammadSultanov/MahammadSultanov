@@ -4,7 +4,7 @@
 
 - 📝 I regularly write articles on [@mahammedsultanov](https://mahammadsultanov.medium.com/)
 
-- 📫 How to reach me **mehemmedsultanli@gmail.com**
+- 📫 How to reach me **Good Luck**
 
 - ⚡ Fun fact **I have a cat named Chester**
 
